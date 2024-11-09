@@ -33,7 +33,7 @@ I'm open to collaborating on:
 - **Innovative solutions** that make an impact
 
 ## 📫 How to Reach Me
-- [LinkedIn](https://www.linkedin.com/in/aakash-sony)
+- [LinkedIn](www.linkedin.com/in/akash-soni-6312aa1a1)
 - [GitHub](https://github.com/aakash-sony)
 
 ## 😄 Pronouns: He/Him
